@@ -1,2 +1,0 @@
-# makhzoumi.github.io
-Formation
